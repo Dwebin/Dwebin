@@ -1,5 +1,5 @@
 <h3 align="center">
-   <img align="center" alt="Q" width="500px" src="https://c.tenor.com/bup4nJFAmlAAAAAC/changmin-tbz-the-boyz-changmin-shock-changmin-wtf-changmin-tbz-bem-gif-bem-changmin.gif" />
+   <img align="center" alt="Irene" width="500px" src="https://images6.fanpop.com/image/photos/42700000/Irene-red-velvet-42729035-473-335.gif" />
 </h3>
 <h2 align="center">Hi!, I'm Daebin/Dae</h2>
 
